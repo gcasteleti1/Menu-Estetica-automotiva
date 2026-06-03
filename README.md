@@ -1,2 +1,2 @@
 # gcasteleti1.github.io
-este é im menu para a minha estetica automotivo
+este é um menu para a minha estetica automotiva
